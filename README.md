@@ -1,1 +1,0 @@
-# nutech2.github.io
